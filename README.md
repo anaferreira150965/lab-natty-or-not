@@ -1,3 +1,5 @@
+Feito um novo modelo https://studio.d-id.com/share?id=0906796fcbb36fcc426385e1b4f2191f&utm_source=whatsapp
+
 # Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
 
 ## 🚀 Introdução
